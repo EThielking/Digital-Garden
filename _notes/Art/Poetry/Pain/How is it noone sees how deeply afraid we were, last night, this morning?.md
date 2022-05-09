@@ -1,0 +1,1 @@
+How is it no one sees how deeply afraid we were, last night, this morning?

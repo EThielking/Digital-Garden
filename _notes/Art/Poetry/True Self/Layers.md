@@ -1,0 +1,11 @@
+[
+
+![632956d0cb5aab1a6f09cb83c7532ce9.jpg](https://images.are.na/eyJidWNrZXQiOiJhcmVuYV9pbWFnZXMiLCJrZXkiOiIxMjUwNjM3Ni9vcmlnaW5hbF8zOTg0ZGU3OTBkODUzMTJmYjcyODY4NWIwMGEzNmQ4Yy5qcGciLCJlZGl0cyI6eyJyZXNpemUiOnsid2lkdGgiOjMxNSwiaGVpZ2h0IjozMTUsImZpdCI6Imluc2lkZSIsIndpdGhvdXRFbmxhcmdlbWVudCI6dHJ1ZX0sIndlYnAiOnsicXVhbGl0eSI6ODV9LCJwbmciOnsicXVhbGl0eSI6ODV9LCJyb3RhdGUiOm51bGx9fQ==)
+
+Added by Nina D’Agostini
+
+about 1 month ago
+
+Connect →
+
+](https://www.are.na/block/12506376)

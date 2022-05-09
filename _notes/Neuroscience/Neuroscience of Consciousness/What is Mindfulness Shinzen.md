@@ -1,0 +1,1 @@
+[What is Mindfulness](https://www.shinzen.org/wp-content/uploads/2016/08/WhatIsMindfulness_SY_Public_ver1.5.pdf)) [[Shinzen Young]]

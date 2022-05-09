@@ -1,0 +1,3 @@
+https://www.are.na/block/3152680
+
+Behind the hypnotic grimace of official pacification there is a war being waged. A war that can no longer merely be called economic, social, or humanitarian. It has become total. Although everyone senses that their existence has become a battlefield upon which neuroses, phobias, somatizations, depression, and anxiety each sound a retreat, nobody has yet really grasped what is happening or what is at stake. Paradoxically, it is the total nature of this war-total in its means no less than its en
